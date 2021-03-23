@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Anton Smith
+- 👀 I’m interested in Chess, Hiking, and Coding.
+- 🌱 I’m currently in my final year of BIT.
+- 📫 My email address is antonsmith0299@gmail.com.
